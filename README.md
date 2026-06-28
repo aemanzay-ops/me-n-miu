@@ -1,2 +1,2 @@
 # me-n-miu
-stay trendy, stay ypu
+stay trendy, stay you
